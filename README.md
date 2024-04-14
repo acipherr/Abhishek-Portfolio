@@ -1,0 +1,1 @@
+Hey there! I'm Abhishek Pathak, and I'm thrilled to welcome you to my portfolio website. Here, you'll find a curated collection of my projects, experiences, and passions. Take a stroll through my work and get to know me a little better. Thanks for stopping by!
